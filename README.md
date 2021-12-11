@@ -1,1 +1,1 @@
-> Be so good they cant ignore you.
+> Be so good they can't ignore you.
